@@ -1,20 +1,20 @@
-# Netflix成人版最新地址发布
+# 奈飞成人版最新地址发布
 
-Netflix成人版 最新地址发布 免费·热辣·鲜活·实用！这样的app真让人上头！
+奈飞成人版 最新地址发布 免费·热辣·鲜活·实用！这样的app真让人上头！
 
 【保存本页随时获取最新地址】 更新于2025年3月21日
 
-Netflix成人版 最新地址(1): https://phc0eq6.5ce4df5j.top （请复制到浏览器打开）
+奈飞成人版 最新地址(1): https://phc0eq6.5ce4df5j.top （请复制到浏览器打开）
 
-Netflix成人版 最新地址(2): https://2wlk5b.q6stp4yn.top （请复制到浏览器打开）
+奈飞成人版 最新地址(2): https://2wlk5b.q6stp4yn.top （请复制到浏览器打开）
 
 永久地址（需VPN、科学上网）https://nfx69.vip （请复制到浏览器打开）
 
 Telegram官方用户群：https://t.me/sfcrsqcom （请复制到浏览器打开）
 
-Netflix成人官方商务：https://t.me/wbxzd69  （请复制到浏览器打开）
+奈飞成人官方商务：https://t.me/wbxzd69  （请复制到浏览器打开）
 
-Netflix成人官方APP下载地址：https://nfx69.cc （请复制到浏览器打开）
+奈飞成人官方APP下载地址：https://nfx69.cc （请复制到浏览器打开）
 
 失联获取最新地址： （发送任何信息到邮箱即可获取最新地址） bbll13458888@gmail.com
 
